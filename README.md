@@ -15,3 +15,6 @@ rifqi rizaldi putra
 
 ## Ipul
 tes
+
+## Rum
+Rum adalah manusia paling ganteng di negeriku Indonesia!

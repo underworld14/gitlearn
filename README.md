@@ -24,3 +24,6 @@ Irwanto Wibowo adalah direktuur utama PT GT TECH,
 siapa mau jadi rekanan Irwanto???
 
 ## syamsul
+
+## Rizki
+Angg Botak

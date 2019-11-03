@@ -18,3 +18,7 @@ tes
 
 ## Rum
 Rum adalah manusia paling ganteng di negeriku Indonesia!
+
+## Irwanto
+Irwanto Wibowo adalah direktuur utama PT GT TECH,
+siapa mau jadi rekanan Irwanto???
